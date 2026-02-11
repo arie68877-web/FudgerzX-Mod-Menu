@@ -1,1 +1,1 @@
-use at your own risk (being banned)!!!
+use at your own risk or you can be banned banned!!
